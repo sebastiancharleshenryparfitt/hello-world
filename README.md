@@ -2,5 +2,4 @@
 
 Hi followers
 
-Pastries and canapes
 
