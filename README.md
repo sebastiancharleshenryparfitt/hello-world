@@ -2,5 +2,5 @@
 
 Hi followers
 
-Pastries and capapes
+Pastries and canapes
 
